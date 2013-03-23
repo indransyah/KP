@@ -1,4 +1,4 @@
-KP
+Kerja Praktek
 ==
 
-KP
+Kerja Praktek di CV. Jack & Revo
